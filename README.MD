@@ -1,4 +1,10 @@
+
+Unidos venceremos, Git presidente....
+
 Eu, ciclano é quem mando...
+
+Aula 12/09/2022 - Beltrano novamente
+
 
 AULA 05/09/2022
 
